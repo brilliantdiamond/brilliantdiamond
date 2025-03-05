@@ -1,17 +1,13 @@
-![](https://64.media.tumblr.com/a030db6798f76f3c03464cc759ad232a/5f73fa610b1b7740-4c/s540x810/5d8eafcbaf7c57e67dc55e8b129989aecc21e005.gifv)
+![](https://64.media.tumblr.com/f9a4d0b727d2d033e6710264581b02ed/03620dfb3f458571-cf/s75x75_c1/8f5f26cca2b345baefeabf2c2645aae97230838b.pnj)![](https://64.media.tumblr.com/bf71ead87dea30b3384af6835dedf489/06411eb661ebfde9-f3/s100x200/9dd072526ed029df42d5e47bb08c114a151b5604.jpg)
 
-hi im micah, she/hyr/he/hymn/star yadayada
+hii im micah ^^ i use he/hymn/she/hyr
 
-silver (pokemon) nonsharing selfshipper, insane about him
+intersex genderfluid gaybian :3
 
-i block other cyrus selfshippers due to my gf being one, no disrespect just respectin boundaries
+i have a partner whom i love dearly !! + im a silver (pokemon) selfshipper, nonsharing!!
 
-genderfluid turigirl gaybian
+always iwc , just for caution!!
 
-always iwc, im kind of easily annoyed
+dni if ur a proshipper or anti-lesboy/turigirl :3
 
-dni if proshipper freak yadayada just read my strawpage if u wanna know more
-
-
-![](https://64.media.tumblr.com/9813a224212a0075760c582812fb2b84/2ddaa33bcf42b24f-ac/s540x810/1d5a540cba888f3386828f926e1b2c9cce1997d8.gifv)
-whythe fuck is he so stupid looking what is that bug
+![](https://64.media.tumblr.com/a3cf075172eee8d0ffa85796906517c1/a9c439d620750af3-a9/s540x810/c54482c069bde8006f793e90f666e01252fab6b9.gifv)
